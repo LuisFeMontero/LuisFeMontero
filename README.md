@@ -21,7 +21,7 @@ He perfeccionado mis habilidades en administración, análisis de datos y prueba
 - **Psicólogo Cofundador de Silere** (Desde enero de 2021 - Actualmente)
   - Desarrollo y mantenimiento de la página web de Silere.
   - Aplicación de conocimientos básicos de marketing digital para promover los servicios de la empresa.
-  ![Artboard 1 copy 5](https://github.com/user-attachments/assets/468e7cce-72ba-4794-80fb-dd6d6817ac47)
+ ![Artboard 1 copy 10](https://github.com/user-attachments/assets/c66f9153-8834-45e1-9774-caf9d9c71618)
 ### Formación Académica y Técnica
 - **Pontificia Universidad Javeriana** - Bogotá D.C.
   - Psicólogo, 2016 - 2020 / Graduado.
@@ -92,7 +92,7 @@ I have honed my skills in administration, data analysis, and psychometric testin
 - **Co-Founder Psychologist at Silere** (Since January 2021 - Present)
   - Development and maintenance of Silere's website.
   - Application of basic digital marketing knowledge to promote company services.
-  ![Artboard 1 copy 5](https://github.com/user-attachments/assets/468e7cce-72ba-4794-80fb-dd6d6817ac47)
+ ![Artboard 1 copy 10](https://github.com/user-attachments/assets/c66f9153-8834-45e1-9774-caf9d9c71618)
 ### Academic and Technical Training
 - **Pontificia Universidad Javeriana** - Bogotá D.C.
   - Psychologist, 2016 - 2020 / Graduated.
