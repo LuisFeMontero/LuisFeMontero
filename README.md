@@ -1,4 +1,4 @@
-# Felipe Montero - Aspirante a Desarrollador Java con Background en Psicología y Administración
+# Felipe Montero - Desarrollador Java con Background en Psicología y Administración
 
 ## Sobre Mí
 
